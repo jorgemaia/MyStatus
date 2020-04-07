@@ -23,4 +23,8 @@ Compartilhe o projeto, ajude-nos a crescer ele e se encontrar uma oportunidade d
 
 Em breve teremos mais informações, 
 
-@anderson-r @rebecahss @jorgemaia
+Time Atual: 
+@anderson-r 
+@rebecahss 
+@jorgemaia
+@jonesyudi
